@@ -18,7 +18,9 @@ Ryzom w głębi, niewidzialny na powierzchni
 
 Prostą głową nieuchwytny, ale spójrz do środka
 
-jest tu od zawsze, ogarnij myśli
+jest tu od zawsze, ogarnij myśli ye
+
+
 
 Sploty stratosfery warstw 
 
@@ -30,9 +32,11 @@ mnogość to nie tylko otchłań
 
 to wariacja wszędzie, już nie żyjesz raz
 
+
+
 Milion żyć w jednej głowie
 
-Utoń w możliwościach nie jeden
+Utoń w możliwościach - nieee jeden
 
 lecz setny raz, jeden umysł
 
