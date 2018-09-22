@@ -33,7 +33,7 @@ Milion żyć w jednej głowie
 
 Utoń w możliwościach nie jeden
 
-setny raz, jeden umysł
+lecz setny raz, jeden umysł
 
 CHORUS: 
 
