@@ -6,6 +6,24 @@ Hitech Crime Single 'Ryzom'
 Bodhi style rythm - Y2 - 6.5 album
 https://www.youtube.com/watch?v=ys26DFQ9NZY
 
+I am you, I'm am us, him and her, they are us
+rhizome rhizome rhizome rhizome rhizome
+rhizome in the depth, invisible on the surface
+elusive to a simple head so look inside
+it is here since forever, take care of your thoughts
+
+weaves, stratospheres of layers
+endless worlds in our heads
+everyone side by side, everyone together
+multiplicity not an abyss
+that variation everywhere, you don't live only once
+
+million lives in one head
+drown in possibilities - not once
+but a hundred times, one mind
+one world
+
+
 CHORUS: 
 
 Ja to ty, ja to my, on i ona, oni my
