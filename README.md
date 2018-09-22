@@ -4,6 +4,7 @@ Hitech Crime Single 'Ryzom'
 **Lyrics**
 
 Bodhi style rythm - Y2 - 6.5 album
+https://www.youtube.com/watch?v=ys26DFQ9NZY
 
 CHORUS: 
 
