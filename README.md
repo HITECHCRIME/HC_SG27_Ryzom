@@ -35,6 +35,8 @@ Utoń w możliwościach nie jeden
 
 lecz setny raz, jeden umysł
 
+jeden świat
+
 CHORUS: 
 
 Ja to ty, ja to my, on i ona, oni my
